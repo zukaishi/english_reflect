@@ -49,3 +49,9 @@ He came up with an out-of-the-box thought based on his realization that people w
 Perhaps the speed of light is always constant,he theorized,because time itself is relative depending on one's state of motion.
 It took the rest of the physics community a few years to realize that this "theory of relativity" was right.
 
+One final trait shared by all my subjects is that they retained a childlike sense of wonder.
+At a certain point in life most of us quit puzzling over everyday phenomena.Our teachers and parents,
+becoming impatient,tell us to stop asking so many silly questions.We might savor the beauty of blue sky,
+but we no longer bother to wonder why it is that color.Leonardo did.So did Einstein,who wrote to another friend,
+"You and I never cease to stand like curious children before the great mystery into which we were born.
+"We should be careful to never outgrow our wonder years-or to let our children do so."
