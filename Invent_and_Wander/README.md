@@ -76,3 +76,11 @@ Of course, he also has some of the infuriating traits that distinguished Steve J
 Despite his fame and influence, he has remained, behind his boisterous laugh,somewhat of an enigma.
 But through his life tale and writings,it is possible to get a sense of what drives him.
 
+When Jeft Bezos was a young kid-big eared, with a booming laugh and insatiable curiosity-he spent his summers on the sprawling South Texas ranch of his maternal grandfather,Lawrence Gise, an upright but loving naval commander who had helped develop the hydrogen bomb as an assistant director of the Atomic Energy Commission.
+There Jeft learned self-reliance. When a bulldozer broke , he and his grandfather built a crane to lift out the gears and fix them.
+Together they castrated the cattle,built windmills, laid pipe, and had long conversations about the frontiers of science,
+technology,and space travel."He did all his own veterinary work," Bezos recalls. "He would make his own needles to suture up the cattle with.
+He would take a piece of wire, use a blowtorch to heat it up, pound it flat, sharpen it, drill a hole through it--make a needle. 
+Some of the cattle even survived."
+
+
