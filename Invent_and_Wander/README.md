@@ -53,5 +53,10 @@ One final trait shared by all my subjects is that they retained a childlike sens
 At a certain point in life most of us quit puzzling over everyday phenomena.Our teachers and parents,
 becoming impatient,tell us to stop asking so many silly questions.We might savor the beauty of blue sky,
 but we no longer bother to wonder why it is that color.Leonardo did.So did Einstein,who wrote to another friend,
-"You and I never cease to stand like curious children before the great mystery into which we were born.
-"We should be careful to never outgrow our wonder years-or to let our children do so."
+"You and I never cease to stand like curious children before the great mystery into which we were born."
+We should be careful to never outgrow our wonder years-or to let our children do so.
+
+Jeft Bezos embodies these traits.He has never outgrown his wonder years.He retains an insatiable,
+childlike, and joyful curiosity about almost everything. 
+His interest in narrative and storytelling not only comes from Amazon's roots in the bookselling business;
+it is also a personal passion.
