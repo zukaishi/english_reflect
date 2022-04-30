@@ -69,4 +69,10 @@ Like Steve Jobs,Bezos has transformed multiple industries.Amazon, the world's la
 More that half of US households are members of Amazon Prime,and Amazon delivered ten billion packages in 2018,which is two billion more than the number of people on this planet.
 Amazon Web Services(AWS) provides cloud computing services and applications that enable start-ups and established companies to easily create new products and services, just as the iPhone App Store opened whole new pathways for business.
 Amazon's Echo has created a new market for smart home speakers,and Amazon Studios is making hit TV shows and movies.
-Amazon is also poised to disrupt the health and pharmacy industries.
+Amazon is also poised to disrupt the health and pharmacy industries.At first its purchase of the Whole Foods Market chain was confounding,until it became apparent that the move could be a brilliant way to tie together the strands of a new Bezos business model, which involves retailing,online ordering,and super-fast delivery,combined with physical outposts.
+Bezos is also building a private space company with the long-term goal of moving heavy industry to space, and he has become the owner of the Washington Post.
+
+Of course, he also has some of the infuriating traits that distinguished Steve Jobs and others.
+Despite his fame and influence, he has remained, behind his boisterous laugh,somewhat of an enigma.
+But through his life tale and writings,it is possible to get a sense of what drives him.
+
