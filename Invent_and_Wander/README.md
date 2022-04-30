@@ -59,4 +59,4 @@ We should be careful to never outgrow our wonder years-or to let our children do
 Jeft Bezos embodies these traits.He has never outgrown his wonder years.He retains an insatiable,
 childlike, and joyful curiosity about almost everything. 
 His interest in narrative and storytelling not only comes from Amazon's roots in the bookselling business;
-it is also a personal passion.
+it is also a personal passion. As a kid, Bezos read dozens of science fiction novels each summer at a local library,and he now hosts an annual retreat for writers and moviemakers.
