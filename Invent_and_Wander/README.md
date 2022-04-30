@@ -64,3 +64,9 @@ Likewise, although his interest in robotics and artificial intelligence was spar
 these fields have grown to become intellectual passions,and he now hosts another gathering each year that brings together experts interested in machine learning, automation, robotics, and space.He collects historical artifacts form great moments in science, exploration, and discovery.
 And he connects this loe of the humanities and his passion for technology to his instinct for business.
 
+That trifecta-humanities,technology, business-is what has made him one of our era's most successful and influential innovators.
+Like Steve Jobs,Bezos has transformed multiple industries.Amazon, the world's largest online retailer,has changed how we shop and what we expect of shipping and deliveries.
+More that half of US households are members of Amazon Prime,and Amazon delivered ten billion packages in 2018,which is two billion more than the number of people on this planet.
+Amazon Web Services(AWS) provides cloud computing services and applications that enable start-ups and established companies to easily create new products and services, just as the iPhone App Store opened whole new pathways for business.
+Amazon's Echo has created a new market for smart home speakers,and Amazon Studios is making hit TV shows and movies.
+Amazon is also poised to disrupt the health and pharmacy industries.
