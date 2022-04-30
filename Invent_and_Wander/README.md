@@ -60,3 +60,7 @@ Jeft Bezos embodies these traits.He has never outgrown his wonder years.He retai
 childlike, and joyful curiosity about almost everything. 
 His interest in narrative and storytelling not only comes from Amazon's roots in the bookselling business;
 it is also a personal passion. As a kid, Bezos read dozens of science fiction novels each summer at a local library,and he now hosts an annual retreat for writers and moviemakers.
+Likewise, although his interest in robotics and artificial intelligence was sparked because of Amazon,
+these fields have grown to become intellectual passions,and he now hosts another gathering each year that brings together experts interested in machine learning, automation, robotics, and space.He collects historical artifacts form great moments in science, exploration, and discovery.
+And he connects this loe of the humanities and his passion for technology to his instinct for business.
+
