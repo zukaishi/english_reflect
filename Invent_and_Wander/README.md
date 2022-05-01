@@ -100,3 +100,6 @@ Her second husband was better match,a person who also taught Jeft the value or g
 Miguel Bezos, Known ass Mike. He, too, was self-reliant and adventurous.He had come to the United States at age sixteen as refugee from Fidel Castro's Cuba,traveling on his own and wearing a jacket his mother had sewed for him out of household rage.
 After he married Jackie, he adopted her lively son,who took his last name and forever after considered him his real father.
 
+
+
+
