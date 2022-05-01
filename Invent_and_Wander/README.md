@@ -93,3 +93,10 @@ She became pregnant with Jeft when she was only seventeen. "She was a high schoo
 No it wasn't. It took a lot of grit. And a lot of help from her parents. The high school actually even tried to kick her out of school.
 I guess they thought pregnancy might be contagious.And my grandfather being a cool and wise guy negotiated a deal with the principal that allowed her to stay and finish hight school. "What was the main lesson Jeft learned from her?"
 Your grow up with a mother like that and you have unbelievable grit," has says.
+
+Jeft's biological father ran a bicycle store and performed in circus unicycle troupe.
+He and Jackie were married only briefly.When Jeft was four,his mother remarried.
+Her second husband was better match,a person who also taught Jeft the value or grit and determination:
+Miguel Bezos, Known ass Mike. He, too, was self-reliant and adventurous.He had come to the United States at age sixteen as refugee from Fidel Castro's Cuba,traveling on his own and wearing a jacket his mother had sewed for him out of household rage.
+After he married Jackie, he adopted her lively son,who took his last name and forever after considered him his real father.
+
