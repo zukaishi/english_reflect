@@ -83,4 +83,6 @@ technology,and space travel."He did all his own veterinary work," Bezos recalls.
 He would take a piece of wire, use a blowtorch to heat it up, pound it flat, sharpen it, drill a hole through it--make a needle. 
 Some of the cattle even survived."
 
-
+Jeft was a voracious reader with an adventurous mind.His grandfather would take him to the library,
+Which had a huge collection of science fiction books. Over the summers Jeft worked his way through the shelves, 
+reading hundreds of them. Isaac Asimov and Robert Heinlein became his favorites,and later in life he would not only quote them but also occasionally invoke their rules lessons, and lingo.
