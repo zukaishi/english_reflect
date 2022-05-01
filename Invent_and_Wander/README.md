@@ -86,3 +86,10 @@ Some of the cattle even survived."
 Jeft was a voracious reader with an adventurous mind.His grandfather would take him to the library,
 Which had a huge collection of science fiction books. Over the summers Jeft worked his way through the shelves, 
 reading hundreds of them. Isaac Asimov and Robert Heinlein became his favorites,and later in life he would not only quote them but also occasionally invoke their rules lessons, and lingo.
+
+His self-reliance and adventurous spirit were also insilled by Jeff's mother, Jackie, who was just as tenacious and sharp as her father and son.
+She became pregnant with Jeft when she was only seventeen. "She was a high school student," Jeft explains.
+"You're probably thinking, 'Wow in 1964 in Albuquerque, it was probably really cool to be a pregnant girl.'
+No it wasn't. It took a lot of grit. And a lot of help from her parents. The high school actually even tried to kick her out of school.
+I guess they thought pregnancy might be contagious.And my grandfather being a cool and wise guy negotiated a deal with the principal that allowed her to stay and finish hight school. "What was the main lesson Jeft learned from her?"
+Your grow up with a mother like that and you have unbelievable grit," has says.
