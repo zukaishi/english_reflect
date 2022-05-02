@@ -100,6 +100,9 @@ Her second husband was better match,a person who also taught Jeft the value or g
 Miguel Bezos, Known ass Mike. He, too, was self-reliant and adventurous.He had come to the United States at age sixteen as refugee from Fidel Castro's Cuba,traveling on his own and wearing a jacket his mother had sewed for him out of household rage.
 After he married Jackie, he adopted her lively son,who took his last name and forever after considered him his real father.
 
-
-
+As a five-year-old in july 1969, Jeft watched television coverage of the Apollo 11 mission that culminated witch Neil Armstrong walking on the moon. 
+It was a seminal moment."I remember watching it on our living room TV, and the excitement of my parents and my grandparents,"
+he says. "Little kids can pick up that kind of excitement. They know something extraordinary is happening.
+That definitely became a passion of mine."
+Among other things, his exhilaration about space turned him into one of those hard-core Star Trek fans who knows every episode.
 
