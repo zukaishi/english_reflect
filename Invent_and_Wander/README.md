@@ -106,3 +106,8 @@ he says. "Little kids can pick up that kind of excitement. They know something e
 That definitely became a passion of mine."
 Among other things, his exhilaration about space turned him into one of those hard-core Star Trek fans who knows every episode.
 
+At his montessori preschool Bezos was already fanatically focused. "The teacher complained to my mother that I was too task focused and that she couldn't get me to switch tasks, so she would have to just pick up my chair and move me,
+"he recalls."And by the way, if you ask the people who work with me, that's still probably true today."
+
+In 1974, when he was ten, his passion for Star Trek led him to computers. He discovered that he could pay a space video game on the terminal in the computer room of his elementary school in Houston, where his father was working for Exxon.
+This was in the days before personal computers, and a dial-up modem connected the school's computer terminal to the mainframe of a company that had donated its excess computer time.
