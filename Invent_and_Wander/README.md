@@ -111,3 +111,25 @@ At his montessori preschool Bezos was already fanatically focused. "The teacher 
 
 In 1974, when he was ten, his passion for Star Trek led him to computers. He discovered that he could pay a space video game on the terminal in the computer room of his elementary school in Houston, where his father was working for Exxon.
 This was in the days before personal computers, and a dial-up modem connected the school's computer terminal to the mainframe of a company that had donated its excess computer time.
+”We had a teletype that was connected by and old acoustic modem," Bezos says. 
+"You literally dialed a regular phone and picked up the handset and put it in this little cradle. 
+And nobody--none of the teachers knew how to operate this computer,nobody did. But there was a stack of manuals, and me and a couple of other kids stayed after class and learned how to program this thing....
+And then, we learned that the mainframe programmers in some central location somewhere in Houston had already programmed this computer to play Star Trek."
+
+His mother encouraged his love of electronics and mechanics by shuttling him to and from RadioShack and letting him turn the family garage into a science project lab.
+She even indulged his penchant for creating ingenious booby traps to frighten his younger brother and sister.
+"I was constantly booby-trapping the house with various kinds of alarms and some of them were not just audible sounds,
+but actually like physical booby traps,"he says. "My mom is a saint,because she would drive me to RadioShack multiple times a day."
+
+His childhood business heroes where Thomas Edison adn Walt Disney."I've always been interested in inventors and invention."
+he says. Even though Edison was the more prolific inventor, Bezos came to admire Disney more because of the audacity of his vision.
+"It seemed to me that he had this incredible capability to create a vision that he could get a large number of people to share,
+"Thing that Disney invented, like Disneyland, the theme parks, they were such big visions that no single individual could ever pull them off,unlike a lot of the things that Edison worked on. Walt Disney really was able to get a big team of people working a concerted direction."
+
+By the time he was in hight school,his family had moved to Miami. Bezos was a straight-A student, somewhat nerdy,and still completely obsessed with space exploration. He was chosen as the valedictorian of this class,and his speech was about space:
+how to colonize planets, build space hotels, and save our fragile planet by finding other places to do manufacturing.
+"Space, the final frontier,meet me there!" he concluded.
+
+He went to Princeton with the goal of studying physics.It sounded like a smart plan until he smashed into a course on quantum mechanics. One day he and his roommate were trying to solve a particularly difficult partial differential equation, and they went to the room of another person in the class for help.
+He stared at in for a moment, then game them the answer. Bezos was amazed that the student had done the calculation--which took three pages of detailed algebra to explain--in his head. "That was the very moment when I realized I was never going to be a great theoretical physicist," Bezos says." I saw the writing on the wall, and I changed my major very quickly to electrical engineering and computer science. "It was a difficult realization. His heart had been set on becoming a physicist,
+but finally he had confronted his own limits.
