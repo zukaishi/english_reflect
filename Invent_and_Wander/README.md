@@ -133,3 +133,16 @@ how to colonize planets, build space hotels, and save our fragile planet by find
 He went to Princeton with the goal of studying physics.It sounded like a smart plan until he smashed into a course on quantum mechanics. One day he and his roommate were trying to solve a particularly difficult partial differential equation, and they went to the room of another person in the class for help.
 He stared at in for a moment, then game them the answer. Bezos was amazed that the student had done the calculation--which took three pages of detailed algebra to explain--in his head. "That was the very moment when I realized I was never going to be a great theoretical physicist," Bezos says." I saw the writing on the wall, and I changed my major very quickly to electrical engineering and computer science. "It was a difficult realization. His heart had been set on becoming a physicist,
 but finally he had confronted his own limits.
+
+After graduation Bezos went to New York to apply his computer skills to the financial industry.
+He ended up a hedge fund run by David E.Shaw, which used computer algorithms to discover pricing disparities in the financial markets.
+Bezos took to the work with disciplined zeal. Foreshadowing the workplace fanaticism he would later try to instill at Amazon,
+he kept a sleeping bag in his office in case he wanted to sleep there after a late night of work.
+
+While working at the hedge fund in 1994,Bezos came across the statistic that the web had been growing by moe than 2,300 percent each year.
+He decided that he wanted to get aboard that rocket, and he came up with the idea of opening a retail store online, sort of a Sears catalogue for the digital age.
+Realizing that it was prudent to start with one product, he chose books--partly because he liked them and also because they were not perishable, were a commodity,could be bought from two big wholesale distributors.
+And there were more than three million titles in print--far more than a bricks-and-mortar store could possibly keep on display.
+
+When he told David Shaw that he wanted to leave the hedge fund to pursue this idea,Shaw took him on a two-hour walk through Central Park. "You know what, Jeft this is a really good idea. I think you're onto a good idea here but this would be abetter idea for somebody who didn't already hae a good job." 
+He convinced Bezos to think about it for a couple of days before making a decision.Bezos then consulted his wife,Mackenzie, whom he had met at the hedge fund and married the year before."You know you can count me in 100 percent,whatever you want to do,"she said.
