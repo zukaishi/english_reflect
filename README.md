@@ -24,3 +24,10 @@ actually, in fact, on the whole, in general
 
 ## 筆者の心情
 frankly, actually, unfortunately, be afraid, honestly
+
+# 主張
+I should, must, believe
+## 確固たる信念に基づいて主張する
+asset
+
+- What I learned form my experience in LINE corp was to find the right assert Have engineers focus on what only engineers can do
