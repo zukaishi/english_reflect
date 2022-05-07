@@ -168,3 +168,11 @@ He eventually decided to name what he hoped would be the Earth's largest store a
 When he called his father to tell him what he was doing,Mike Bezos asked, "What's the Internet?"Or at least that's Jeft's romantic narrative. Mike Bezos in fact had been a user of the early online dial-up services and had a pretty good idea of what online retailing could be.
 Event though he and Jackie thought it was rash to leave a high-paying financial industry job for such a lark, they took much of their life savings--$100,000 at first,then more--and agreed to invest. "The initial start-up capital came primary from my parents, and they invested a large faction of their life savings in what became Amazon.com,"Bezos says."That was a very bold and trusting thing for them to do."
 
+Mike Bezos admitted that he never understood either the concept or the business plan.
+"He was making a bet on his son,as was my mother,"Jeft says."I told them that I told them that I though there was a 70 percent chance that they would lose their whole investment....I thought I was giving myself triple the normal odds,because really,if you look at the odds of a start-up company succeeding at all,it's only about 10 percent.
+Here I was, giving myself a 30 percent chance." As his mother,Jackie, later said,"We didn't invest in Amazon, we invested in Jeft."
+They eventually put in more money, ended up owning 6 percent of the company, and used their wealth to become very active and creative philanthropists focused on providing early-childhood learning opportunities for all children.
+
+Others didn't quite get the idea either.Crag Stoltz was then a Wahington Post reporter running the news-paper's magazine about consumer technology.Bezos came to pitch his idea."He was short,with an uncomfortable smile,thinning hair,and a somehow febrile affect,"Stoltz later wrote in a blog post.
+Totally unimpressed,Stoltz blew him off and declined to write a story about the idea.
+Years later, long after Stoltz left the paper,Bezos would end up buying it.
