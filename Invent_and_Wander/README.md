@@ -146,3 +146,9 @@ And there were more than three million titles in print--far more than a bricks-a
 
 When he told David Shaw that he wanted to leave the hedge fund to pursue this idea,Shaw took him on a two-hour walk through Central Park. "You know what, Jeft this is a really good idea. I think you're onto a good idea here but this would be abetter idea for somebody who didn't already hae a good job." 
 He convinced Bezos to think about it for a couple of days before making a decision.Bezos then consulted his wife,Mackenzie, whom he had met at the hedge fund and married the year before."You know you can count me in 100 percent,whatever you want to do,"she said.
+
+To make the decision, Bezos a mental exercise that would become a famous part of his risk-calculation process.
+He called it a  "regret minimization framework." He would imagine what he would feel when he turned eighty and thought back to the decision.
+"I want to have minimized the number of regrets I have,"he explains."I knew that when I was eighty,I was not going to regret having tried this.I was not going to regret trying to participate in this thing called the internet that I thought was going to be a really big deal.
+I knew that if I failed, I would't regret that,but I knew the one thing I might regret is not ever having tried.
+I knew that that would haunt me every day."
