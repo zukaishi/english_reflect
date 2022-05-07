@@ -201,3 +201,7 @@ Bezos looked at the employee as if he were a genius."I thought that was the smar
 
 The fact that Amazon grew so quickly meant that Bezos and his colleagues were unprepared for many of the challengers.
 But he sees a silver lining in the way they had to hustle."It formed a culture of customer service in every department of the company,"he says."Every single person in the company,because we had to work with our hands so close to the customers,making sure those orders went out,really set up a culture that served us well, and that is our goal,to be Earth's most customer-centric company."
+
+Bezos's goal soon became to create an "everything store." His next steps were to branch out to music and video.
+Keeping his focus on the customer,he emailed one thousand of them to wee what else they would like to be able to buy.
+The answers helped him understand better the concept of "the long tail," which means being able to offer items that are not everyday bestsellers and, thus don't command shelf space at most retailers.
