@@ -152,3 +152,9 @@ He called it a  "regret minimization framework." He would imagine what he would 
 "I want to have minimized the number of regrets I have,"he explains."I knew that when I was eighty,I was not going to regret having tried this.I was not going to regret trying to participate in this thing called the internet that I thought was going to be a really big deal.
 I knew that if I failed, I would't regret that,but I knew the one thing I might regret is not ever having tried.
 I knew that that would haunt me every day."
+
+He and MacKenzie flew to Texas,where they borrowed a Chevrolet from Jeft's father and began a drive that would become legendary in entrepreneurial origin tales.
+As MacKenzie drove, Jeft typed up a business plan and spreadsheets filled with revenue predictions.
+"You know the business plan won't survive its first encounters with reality,"he says."But the discipline of writing the plan forces think through some of the issues and to get sort of mentally comfortable in the space.
+Then you start to understand,if you push on this knob,this will move over here and so on.So,that's the first step."
+
