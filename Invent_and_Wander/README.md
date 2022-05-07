@@ -165,3 +165,6 @@ Bezos told the lawyer he wanted to call the new company Cadabra, as in the magic
 The lawyer responded,"Cadaver?" Bezos unleashed his trademark boom of a laugh and realized he would need to comp up with a better name.
 He eventually decided to name what he hoped would be the Earth's largest store after the Earth's longest river.
 
+When he called his father to tell him what he was doing,Mike Bezos asked, "What's the Internet?"Or at least that's Jeft's romantic narrative. Mike Bezos in fact had been a user of the early online dial-up services and had a pretty good idea of what online retailing could be.
+Event though he and Jackie thought it was rash to leave a high-paying financial industry job for such a lark, they took much of their life savings--$100,000 at first,then more--and agreed to invest. "The initial start-up capital came primary from my parents, and they invested a large faction of their life savings in what became Amazon.com,"Bezos says."That was a very bold and trusting thing for them to do."
+
