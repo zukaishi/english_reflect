@@ -193,3 +193,8 @@ One of the other iconic origin tales of Amazon,told often by Bezos with his rauc
 ”This packing is killing me! My back hurts,this is killing my knees on this hard cement floor."Bezos exclaimed one day.
 "You know what we need? We need knee pads!"
 
+An employee looked at Bezos as if he were the stupidest person he'd ever seen.
+"What we need are packing tables,"he said.
+
+Bezos looked at the employee as if he were a genius."I thought that was the smartest idea I had ever heard,
+"Bezos recalls. "The next day we got packing tables,and I think we doubled our productivity."
