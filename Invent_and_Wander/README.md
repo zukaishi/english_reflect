@@ -176,3 +176,8 @@ They eventually put in more money, ended up owning 6 percent of the company, and
 Others didn't quite get the idea either.Crag Stoltz was then a Wahington Post reporter running the news-paper's magazine about consumer technology.Bezos came to pitch his idea."He was short,with an uncomfortable smile,thinning hair,and a somehow febrile affect,"Stoltz later wrote in a blog post.
 Totally unimpressed,Stoltz blew him off and declined to write a story about the idea.
 Years later, long after Stoltz left the paper,Bezos would end up buying it.
+
+Jeft and MacKenzie initially set up the company in the two-bedroom home they rented near Seattle.
+"They converted the garage into a work space and brought in three Sun workstations,"Josh Quittener later wrote in Time.
+"Extension cords snaked from every available outlet in the house to the garage ,and a black hole gaped through the ceiling--this was where a potbellied stove had been ripped out to make more room.
+To sae money, Bezos went to Home Depot and bought three wooden doors.Using angle brackets and 2-by-4s,he hammered together three desks,at a cost of $60 each."
