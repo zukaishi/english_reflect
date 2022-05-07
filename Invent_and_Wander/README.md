@@ -158,3 +158,10 @@ As MacKenzie drove, Jeft typed up a business plan and spreadsheets filled with r
 "You know the business plan won't survive its first encounters with reality,"he says."But the discipline of writing the plan forces think through some of the issues and to get sort of mentally comfortable in the space.
 Then you start to understand,if you push on this knob,this will move over here and so on.So,that's the first step."
 
+Bezos picked Seattle as a location for his new company, partly because it was home to Microsoft and many other tech companies and therefore had a lot of engineers to recruit from.
+It was also near a book distribution company.Bezos wanted to incorporate right away,so on the drive he called a friend to get a recommendation for a lawyer in Seattle.
+It turned out to be the friend's divorce lawyer, but he was able to handle the parers.
+Bezos told the lawyer he wanted to call the new company Cadabra, as in the magical incantation "aberacadabra."
+The lawyer responded,"Cadaver?" Bezos unleashed his trademark boom of a laugh and realized he would need to comp up with a better name.
+He eventually decided to name what he hoped would be the Earth's largest store after the Earth's longest river.
+
