@@ -186,3 +186,6 @@ Amazon.com went live on July 16,1995. Bezos and his small team rigged up a bell 
 In the first month,with no real marketing or publicity plan other than asking friends to spread the word,
 Amazon scored sales in all fifty sates and in forty-five countries."Within the first few day,I knew this was going to be huge,"Bezos told Time.
 "It was obvious that we were onto something much bigger than we ever dared to hope."
+
+At first Jeft and MacKenzie and a few early employees handled everything, including packing,wrapping, and driving the boxes off to be shipped."We had so many orders that we weren't ready for that we had no real organization in our distribution center at all,"Bezos says."In fact, we were packing on our hands and kness on hard concrete floor."
+One of the other iconic origin tales of Amazon,told often by Bezos with his raucous laugh,involved how they figured out a way to make the packing easier.
