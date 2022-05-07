@@ -198,3 +198,6 @@ An employee looked at Bezos as if he were the stupidest person he'd ever seen.
 
 Bezos looked at the employee as if he were a genius."I thought that was the smartest idea I had ever heard,
 "Bezos recalls. "The next day we got packing tables,and I think we doubled our productivity."
+
+The fact that Amazon grew so quickly meant that Bezos and his colleagues were unprepared for many of the challengers.
+But he sees a silver lining in the way they had to hustle."It formed a culture of customer service in every department of the company,"he says."Every single person in the company,because we had to work with our hands so close to the customers,making sure those orders went out,really set up a culture that served us well, and that is our goal,to be Earth's most customer-centric company."
