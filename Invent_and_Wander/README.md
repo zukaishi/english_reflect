@@ -181,3 +181,8 @@ Jeft and MacKenzie initially set up the company in the two-bedroom home they ren
 "They converted the garage into a work space and brought in three Sun workstations,"Josh Quittener later wrote in Time.
 "Extension cords snaked from every available outlet in the house to the garage ,and a black hole gaped through the ceiling--this was where a potbellied stove had been ripped out to make more room.
 To sae money, Bezos went to Home Depot and bought three wooden doors.Using angle brackets and 2-by-4s,he hammered together three desks,at a cost of $60 each."
+
+Amazon.com went live on July 16,1995. Bezos and his small team rigged up a bell to chime whenever they got a sale,but it very quickly needed to be disabled, as rushes of orders came in.
+In the first month,with no real marketing or publicity plan other than asking friends to spread the word,
+Amazon scored sales in all fifty sates and in forty-five countries."Within the first few day,I knew this was going to be huge,"Bezos told Time.
+"It was obvious that we were onto something much bigger than we ever dared to hope."
