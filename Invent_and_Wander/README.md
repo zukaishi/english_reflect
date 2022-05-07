@@ -205,3 +205,6 @@ But he sees a silver lining in the way they had to hustle."It formed a culture o
 Bezos's goal soon became to create an "everything store." His next steps were to branch out to music and video.
 Keeping his focus on the customer,he emailed one thousand of them to wee what else they would like to be able to buy.
 The answers helped him understand better the concept of "the long tail," which means being able to offer items that are not everyday bestsellers and, thus don't command shelf space at most retailers.
+
+"The way they answered the question was with whatever they were looking for at that moment,"he says."I remember one of the answers was 'I wish you sold windshield wiper blades because I really need windshield wiper blades.'
+And I thought to myself we can sell anything this way, and then we launched electronics and toys and many other categories over time."
