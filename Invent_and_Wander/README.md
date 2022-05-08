@@ -224,3 +224,5 @@ Ferry owner Cornelius Vanderbilt jumped ship when he saw the railroads coming.
 Thomas Watson Jr.,overwhelmed by his sense that computers would be everywhere even when thy were nowhere,
 bet his father's office-machine company on it:IBM.Jeffrey Preston Bezos had that sam experience when he first peered into the maze of connected computers called the World Wide Web and realized that the future of retailing was glowing back at him.... Bezos' vision of the online retailing universe was so complete,his Amazon.com site so elegant and appealing, that it became from Day One the point of reference for anyone who had anything to sell online.
 And that,it turns out,is everyone.
+
+Amazon was indeed hit hard by the internet-bubble collapse. Its stock was at $106 a share in December 1999 when our Person of the Year issue came out. A month later it was down 40 percent. Within two years it ahd fallen to as low as $6 a share. Journalists and stock analysts ridiculed it, dubbing the company "Amazon. toast" and Amazon.bomb."In the annual shareholder letter he wrote right after that, Bezos began with a one-word sentence:"Ouch."
