@@ -234,3 +234,7 @@ Bezos succeeded by keeping his eye on the long game, foregoing profits for growt
 At one point during the do.com meltdown,he and a few other internet entrepreneurs were on an NBC Nightly News special with Tom Brokaw."Mr.Bezos,can you even spell 'profit'?" Brokaw asked, highlighting the fact that Amazon was hemorrhaging money as it grew."Sure," Bezos replied, "P-R-O-P-H-E-T."And by 2019 Amazon stock would be at $2,000 a share,and the company would have $233 billion in revenues and 647,000 employee worldwide.
 
 An example of how Bezos innovates and operates was the launch of Amazon Prime, which transformed the was Americans think about how quickly and cheaply they can be gratified by ordering online.
+One of his board members had been suggesting that Amazon create a loyalty program,similar to what the airlines have with their frequent-flyer programs.
+Separately, an Amazon engineer suggested that the company offer free shipping to its most loyal customers.
+Bezos put the two ideas together and asked his finance team to assess the costs and benefits.
+"The results were horrifying," Bezos says with his laugh. But Bezos had a rule, which was to use his heart and his intuition as well as empirical data in making a big decision.
