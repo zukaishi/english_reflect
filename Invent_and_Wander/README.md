@@ -208,3 +208,6 @@ The answers helped him understand better the concept of "the long tail," which m
 
 "The way they answered the question was with whatever they were looking for at that moment,"he says."I remember one of the answers was 'I wish you sold windshield wiper blades because I really need windshield wiper blades.'
 And I thought to myself we can sell anything this way, and then we launched electronics and toys and many other categories over time."
+
+At the end of 1999 was the editor of Time,and we made a somewhat offbeat decision to make Bezos our Person of the Year,
+even though he wasn't a famous world leader or statesman.I had the theory that the people who affect our lives the most are often the people in business and technology who, at least early in their careers,aren't often found on the front pages.For example,we had made Andy Grove of Intel the Person of the Year at the end of 1997 because I felt the explosion of the microchip was changing our society more than any prime minister or president or treasury secretary.
