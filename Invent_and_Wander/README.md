@@ -232,3 +232,4 @@ But Don Logan was right.But Don Logan was right.Amazon and Bezos were able to su
 
 Bezos succeeded by keeping his eye on the long game, foregoing profits for growth,and being relentless and sometime ruthless with competitors and even his own colleagues.
 At one point during the do.com meltdown,he and a few other internet entrepreneurs were on an NBC Nightly News special with Tom Brokaw."Mr.Bezos,can you even spell 'profit'?" Brokaw asked, highlighting the fact that Amazon was hemorrhaging money as it grew."Sure," Bezos replied, "P-R-O-P-H-E-T."And by 2019 Amazon stock would be at $2,000 a share,and the company would have $233 billion in revenues and 647,000 employee worldwide.
+
