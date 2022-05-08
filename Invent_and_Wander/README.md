@@ -211,3 +211,8 @@ And I thought to myself we can sell anything this way, and then we launched elec
 
 At the end of 1999 was the editor of Time,and we made a somewhat offbeat decision to make Bezos our Person of the Year,
 even though he wasn't a famous world leader or statesman.I had the theory that the people who affect our lives the most are often the people in business and technology who, at least early in their careers,aren't often found on the front pages.For example,we had made Andy Grove of Intel the Person of the Year at the end of 1997 because I felt the explosion of the microchip was changing our society more than any prime minister or president or treasury secretary.
+
+But as the publication date of our Bezos issue neared in December 1999,the air was stating to go out of the dot.com bubble.I was worried--correctly--that internet stocks,such as Amazon,would start to collapse.
+So I asked the CEO of Time Inc.the very wise Don Logan,whether I was making a mistake by choosing Bezos and would look silly in years to come if the internet economy deflated. No, Don told me. 
+"Stick with your choice. Jeft Bezos is not in the internet business.He's in the customer-service business.
+He will be around for decades to come,well after people have forgotten all dot.coms that are going to go bust."
