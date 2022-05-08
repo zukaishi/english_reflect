@@ -227,3 +227,5 @@ And that,it turns out,is everyone.
 
 Amazon was indeed hit hard by the internet-bubble collapse. Its stock was at $106 a share in December 1999 when our Person of the Year issue came out. A month later it was down 40 percent. Within two years it ahd fallen to as low as $6 a share. Journalists and stock analysts ridiculed it, dubbing the company "Amazon. toast" and Amazon.bomb."In the annual shareholder letter he wrote right after that, Bezos began with a one-word sentence:"Ouch."
 
+But Don Logan was right.But Don Logan was right.Amazon and Bezos were able to survive the bust.
+"As I watched the stock fall from 113 to 6, I was also watching all of our internal business metrics:number of customers,profit per unit,"he says." Every single about the business was getting better and fast. It's a fixed-cost business.And so,what I could see is that,from the internal metrics, is that at a certain volume level that we would cover our fixed costs the company would be profitable."
