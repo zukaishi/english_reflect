@@ -216,3 +216,5 @@ But as the publication date of our Bezos issue neared in December 1999,the air w
 So I asked the CEO of Time Inc.the very wise Don Logan,whether I was making a mistake by choosing Bezos and would look silly in years to come if the internet economy deflated. No, Don told me. 
 "Stick with your choice. Jeft Bezos is not in the internet business.He's in the customer-service business.
 He will be around for decades to come,well after people have forgotten all dot.coms that are going to go bust."
+
+So we went ahead.The great portrait photographer Greg Heisler convinced Bezos to pose with his head facing out from an Amazon box filled with packaging material, and at the house of Margaret Carlson we threw a party featuring only food and drink that had been ordered online. Joshua Cooper Ramo, one of our savviest young editors,editors,wrote the overview story that put Bezos in historical perspective.
