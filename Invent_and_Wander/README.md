@@ -226,3 +226,4 @@ bet his father's office-machine company on it:IBM.Jeffrey Preston Bezos had that
 And that,it turns out,is everyone.
 
 Amazon was indeed hit hard by the internet-bubble collapse. Its stock was at $106 a share in December 1999 when our Person of the Year issue came out. A month later it was down 40 percent. Within two years it ahd fallen to as low as $6 a share. Journalists and stock analysts ridiculed it, dubbing the company "Amazon. toast" and Amazon.bomb."In the annual shareholder letter he wrote right after that, Bezos began with a one-word sentence:"Ouch."
+
