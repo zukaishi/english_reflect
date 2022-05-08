@@ -229,3 +229,6 @@ Amazon was indeed hit hard by the internet-bubble collapse. Its stock was at $10
 
 But Don Logan was right.But Don Logan was right.Amazon and Bezos were able to survive the bust.
 "As I watched the stock fall from 113 to 6, I was also watching all of our internal business metrics:number of customers,profit per unit,"he says." Every single about the business was getting better and fast. It's a fixed-cost business.And so,what I could see is that,from the internal metrics, is that at a certain volume level that we would cover our fixed costs the company would be profitable."
+
+Bezos succeeded by keeping his eye on the long game, foregoing profits for growth,and being relentless and sometime ruthless with competitors and even his own colleagues.
+At one point during the do.com meltdown,he and a few other internet entrepreneurs were on an NBC Nightly News special with Tom Brokaw."Mr.Bezos,can you even spell 'profit'?" Brokaw asked, highlighting the fact that Amazon was hemorrhaging money as it grew."Sure," Bezos replied, "P-R-O-P-H-E-T."And by 2019 Amazon stock would be at $2,000 a share,and the company would have $233 billion in revenues and 647,000 employee worldwide.
