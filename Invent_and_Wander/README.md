@@ -218,3 +218,9 @@ So I asked the CEO of Time Inc.the very wise Don Logan,whether I was making a mi
 He will be around for decades to come,well after people have forgotten all dot.coms that are going to go bust."
 
 So we went ahead.The great portrait photographer Greg Heisler convinced Bezos to pose with his head facing out from an Amazon box filled with packaging material, and at the house of Margaret Carlson we threw a party featuring only food and drink that had been ordered online. Joshua Cooper Ramo, one of our savviest young editors,editors,wrote the overview story that put Bezos in historical perspective.
+
+Every time a seismic shift takes place in our economy,there are people who feel the vibrations long before the rest of us do,vibrations so strong they demand action--action that can seem rash,even stupid. 
+Ferry owner Cornelius Vanderbilt jumped ship when he saw the railroads coming.
+Thomas Watson Jr.,overwhelmed by his sense that computers would be everywhere even when thy were nowhere,
+bet his father's office-machine company on it:IBM.Jeffrey Preston Bezos had that sam experience when he first peered into the maze of connected computers called the World Wide Web and realized that the future of retailing was glowing back at him.... Bezos' vision of the online retailing universe was so complete,his Amazon.com site so elegant and appealing, that it became from Day One the point of reference for anyone who had anything to sell online.
+And that,it turns out,is everyone.
