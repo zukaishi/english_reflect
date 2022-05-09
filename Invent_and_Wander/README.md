@@ -238,3 +238,12 @@ One of his board members had been suggesting that Amazon create a loyalty progra
 Separately, an Amazon engineer suggested that the company offer free shipping to its most loyal customers.
 Bezos put the two ideas together and asked his finance team to assess the costs and benefits.
 "The results were horrifying," Bezos says with his laugh. But Bezos had a rule, which was to use his heart and his intuition as well as empirical data in making a big decision.
+"there has to be risk taking. You have to have instinct.All the good decisions have to be made that way,"
+he says."You do it with a group. You do it with great humility."
+
+He knew that creating Amazon Prime was what he calls a one-way door:it was a decision difficult to reverse.
+"We've made mistakes, doozies like the Fire Phone and many other things that just didn't work out.
+I won't list all of our failed experiments,but the big winners pay for thousands of failed experiments.
+"He was aware that it would be scary at fist because those who signed up for Prime would be the heaviest users of shipping.
+"What happens when you offer a free all-you-can-really say as many prawns as your can eat?" 
+But eventually Amazon Prime led to the combination of a loyalty program and a convenience for customers as well as a huge source of customer data.
