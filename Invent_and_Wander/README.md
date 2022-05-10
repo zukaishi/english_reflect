@@ -247,3 +247,7 @@ I won't list all of our failed experiments,but the big winners pay for thousands
 "He was aware that it would be scary at fist because those who signed up for Prime would be the heaviest users of shipping.
 "What happens when you offer a free all-you-can-really say as many prawns as your can eat?" 
 But eventually Amazon Prime led to the combination of a loyalty program and a convenience for customers as well as a huge source of customer data.
+
+The greatest and most serendipitous innovation Bezos made was the creation of Amazon Web Services.
+The initial ideas--which included a software layer known as Elastic Computer Cloud and hosting operation known as Simple Storage Service--bubbled up from inside the company.
+Eventually a variety of related ideas came together in a memo that proposed the creation of a service that would "enable developers and companies to use Web Services to build sophisticated and scalable applications."
